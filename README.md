@@ -7,4 +7,4 @@
 
 **Couldn't upload it and had to zip because 150+ mini projects has in it.**
 
-**Best regards**
+**Best regards.**
